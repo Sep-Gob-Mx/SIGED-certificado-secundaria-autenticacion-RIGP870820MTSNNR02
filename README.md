@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RIGP870820MTSNNR02
+RIGP870820MTSNNR02
